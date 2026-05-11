@@ -1,4 +1,4 @@
-# 
+# Enhance Adobe Audition for macOS with secure Adobe Audition for macOS Script | EQ + real-time-effects, the #1 script. Includes EQ and real-time-effects for a smoother and more
 
 
 
